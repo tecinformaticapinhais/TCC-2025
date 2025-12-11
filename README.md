@@ -1,4 +1,4 @@
-# Trabalhos de Conclusão de Curso - Curso Técnico Integrado em Informática (2025)
+# Trabalhos de Conclusão de Curso (2025)
 
 
 
